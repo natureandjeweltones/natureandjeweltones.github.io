@@ -19,6 +19,24 @@ Nature And Jewel Tones is a Toronto-based online boutique specializing in carefu
 - Shoes
 - Bags & Accessories
 
+## Featured Collections
+
+### Torrid
+
+Curated plus-size clothing, lingerie, denim, and accessories.
+
+### Merino Wool
+
+Quality merino wool clothing and accessories for babies, children, and adults.
+
+### Shoes
+
+Carefully selected new and pre-owned footwear.
+
+### Bags & Accessories
+
+Handbags, accessories, and unique finishing pieces.
+
 ## Store Policies
 
 Shipping Policy 
