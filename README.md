@@ -19,17 +19,23 @@ Nature And Jewel Tones is a Toronto-based online boutique specializing in carefu
 - Shoes
 - Bags & Accessories
 
-## Shipping Policy
+## StorePolicies
 
-## Returns Policy
+Shipping Policy 
 
-## Store Policies
+Orders are carefully packaged and shipped promptly. Shipping times may vary depending on destination and carrier service. Tracking information will be provided when available. Buyers are encouraged to contact us with any questions before purchasing.
 
-- Smoke-free storage environment
-- Fast shipping
-- Detailed photos of actual items
-- Item condition clearly disclosed
-- Questions welcome before purchase
+Returns
+
+Due to the unique nature of many items, all sales are considered final unless an item has been significantly misrepresented. Please review photos, measurements, and descriptions carefully before purchasing. Questions are always welcome prior to purchase.
+
+Product Information
+
+We strive to provide accurate descriptions, measurements, and photographs of every item. Photos show the actual item unless otherwise noted. Any significant flaws or condition concerns will be disclosed in the listing description.
+
+Store Environment
+
+Items are stored in a smoke-free, pet-free environment. All items are photographed and listed individually using a consistent documentation process to provide clear and accurate information for buyers.  Questions welcome before purchase
 
 ## Contact
 
