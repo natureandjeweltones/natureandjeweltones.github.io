@@ -6,12 +6,16 @@ Toronto, Ontario, Canada
 
 Welcome to Nature And Jewel Tones.
 
-We specialize in carefully selected new and pre-owned clothing, merino wool garments, shoes, bags, and accessories.
+We specialize in carefully selected new and pre-owned clothing, merino wool garments, shoes, bags, and accessories for both children and adults. 
+
+## About
+
+Nature And Jewel Tones is a Toronto-based online boutique specializing in carefully selected new and pre-owned clothing, merino wool garments, shoes, bags, and accessories. We focus on quality fabrics, thoughtful presentation, and transparent item descriptions.
 
 ## Categories
 
 - Women's Clothing
-- Merino Wool
+- Baby and Children's Merino Wool
 - Shoes
 - Bags & Accessories
 
