@@ -19,6 +19,11 @@ Nature And Jewel Tones is a Toronto-based online boutique specializing in carefu
 - Shoes
 - Bags & Accessories
 
+## Policies
+## Shipping Policy
+## Returns Policy
+## Contact Information
+
 ## Contact
 
 Website currently under development.
