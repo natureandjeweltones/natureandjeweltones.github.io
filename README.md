@@ -1,7 +1,5 @@
 ![Nature And Jewel Tones Logo](IMG_7927.jpeg)
 
-# Nature And Jewel Tones
-
 Curated Clothing • Merino Wool • Shoes • Accessories
 
 Toronto, Ontario, Canada
@@ -26,6 +24,12 @@ Nature And Jewel Tones is a Toronto-based online boutique specializing in carefu
 ### Torrid
 
 Curated plus-size clothing, lingerie, denim, and accessories.
+
+### Cleo
+
+Curated office wear and accessories. 
+
+
 
 ### Merino Wool
 
