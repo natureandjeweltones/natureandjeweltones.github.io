@@ -55,7 +55,7 @@ Store Environment
 
 Items are stored in a smoke-free, pet-free environment. All items are photographed and listed individually using a consistent documentation process to provide clear and accurate information for buyers.  Questions welcome before purchase
 
-## Contact## Contact
+## Contact
 
 Product inquiries are welcome.
 
