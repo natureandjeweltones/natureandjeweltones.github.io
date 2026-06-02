@@ -1,3 +1,5 @@
+![Nature And Jewel Tones Logo](IMG_7927.jpeg)
+
 # Nature And Jewel Tones
 
 Curated Clothing • Merino Wool • Shoes • Accessories
