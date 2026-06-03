@@ -74,6 +74,4 @@ Items are stored in a smoke-free, pet-free environment. All items are photograph
 
 Product inquiries are welcome.
 
-Contact information and direct purchasing options will be added as the website develops.
-
-Website currently under development.
+Contact information and direct purchasing options coming soon. 
