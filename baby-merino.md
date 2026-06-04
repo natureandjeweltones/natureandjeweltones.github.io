@@ -114,8 +114,7 @@ Condition:
 
 • Fabric remains soft, evenly textured, and fully wearable
 
-<img width="1928" height="3497" alt="H M_PremiumGreySet_9-12months_IMG_7476" src="https://github.com/user-attachments/assets/d8440a9d-680b-48af-8b24-45ee0e0723f9" />
-
+<img width="770" height="1400" alt="HM_PremiumGreySet_9-12months_IMG_7476" src="https://github.com/user-attachments/assets/d8440a9d-680b-48af-8b24-45ee0e0723f9" />
 
 [↑ Return to Top](#top)
 
