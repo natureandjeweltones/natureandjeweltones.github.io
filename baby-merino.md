@@ -32,6 +32,9 @@ Please Note:
 
 #### Dusky Rose Sleep Gown
 
+<img src="https://github.com/user-attachments/assets/98d433a1-89ad-495c-ad91-b54feba6e310" width="770" alt="SimplyMerino_DuskyRose_InfantGown_0-3m_IMG_2511" />
+
+
 Size: 0–3 Months  
 
 Condition:
