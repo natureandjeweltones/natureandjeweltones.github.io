@@ -74,4 +74,4 @@ Items are stored in a smoke-free, pet-free environment. All items are photograph
 
 Product inquiries are welcome.
 
-Contact information and direct purchasing options coming soon. 
+Email Address: info@natureandjeweltones.ca
