@@ -6,7 +6,9 @@ Merino wool is naturally temperature regulating, breathable, moisture wicking, a
 
 ## Available Inventory
 
-### Simply Merino Fern Green Sleep Gown
+### Simply Merino 
+
+#### Fern Green Sleep Gown 
 Size: 0–3 Months  
 Condition:
 Gently used and carefully maintained. Knit still has excellent softness, stretch, and overall fibre condition. Material close ups and brand/fibre labels shown in photos.
@@ -14,7 +16,7 @@ plese Note:
 The tie ends were lightly stitched together for easier everyday use and can still be laid flat if preferred.
 
 
-### Simply Merino Dusky Rose Sleep Gown
+#### Dusky Rose Sleep Gown
 Size: 0–3 Months  
 Condition:
 Well loved and carefully maintained. Knit still has excellent softness, stretch, and overall fibre condition. Material close ups and brand/fibre labels shown in photos.
@@ -22,10 +24,28 @@ Please note:
 Bottom tie is missing.  One label edge is partially detached. Both flaws are shown clearly in photos.
 
  
-### Woolino Sleep Sacks 
-Colours: cream/beige and one green
+### Woolino 
+
+#### Sleep Sacks 
 Size: 2 months to 2 years
+Colours: cream/beige and one green
 Condition: Gently Used
 
-### H&M Merino Wool Set
+### Wee Woolies 
+
+#### Bodysuit
+Sizes: 6-12 months 
+Colours: Wild Cherry with Blue Spruce Trim
 Condition: Gently Used
+
+#### Bodysuit
+Sizes: 12-24 months
+Colours: Wild Cherry with Blue Spruce Cuffs/Trim
+Condition: Gently Used
+
+#### Leggings 
+Sizes: months
+Colours: Wild Cherry with Blue Spruce Cuffs
+Condition: Gently Used
+
+
