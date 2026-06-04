@@ -9,9 +9,11 @@ Merino wool is naturally temperature regulating, breathable, moisture wicking, a
 ### Simply Merino (Canada)
 
 #### Fern Green Sleep Gown 
+
 Size: 0–3 Months  
 
 Condition:
+
 • Gently used and carefully maintained. 
 
 • Knit still has excellent softness, stretch, and overall fibre condition. 
@@ -19,15 +21,19 @@ Condition:
 •Material close ups and brand/fibre labels shown in photos.
 
 Please Note: 
+
 • The tie ends were lightly stitched together for easier everyday use and can still be laid flat if preferred.
 
 #### Dusky Rose Sleep Gown
+
 Size: 0–3 Months  
 
 Condition:
+
 • Well loved and carefully maintained. • Knit still has excellent softness, stretch, and overall fibre condition. 
 
 Please note:
+
 • Bottom tie is missing.  
 
 • One label edge is partially detached. • Both flaws are shown clearly in photos.
@@ -36,12 +42,14 @@ Please note:
 ### Merino Kids (UK)
 
 #### Sandstone Stripe Baby Sleep Sack
+
 Size: 3 months to 24 months
 
 Condition: Gently Used
 
 
 #### Sandstone Stripe Toddler Sleep Sack
+
 Size: 2-4 years
 
 Condition: Gently Used
@@ -49,16 +57,19 @@ Condition: Gently Used
 ### Wee Woolies (Canada)
 
 #### Wild Cherry/Blue Spruce Bodysuit
+
 Sizes: 6-12 months 
 
 Condition: Gently Used
 
 #### Wild Cherry/Blue Spruce Bodysuit
+
 Size: 12-24 months
 
 Condition: Gently Used
 
 #### Wild Cherry/Blue Spruce Leggings 
+
 Size: months
 
 Condition: Gently Used
@@ -66,14 +77,17 @@ Condition: Gently Used
 ### H & M (Sweeden)
 
 #### Brown/Cream Premium Selection Sweater and Pants Set
+
 Size: 4-6 months
 
 Condition: New With Tags (NWT) 
 
 #### Dark Grey/Cream Micro Pattern Premium Selection Sweater & Pants Set
+
 Size: 9-12 months
 
 Condition: 
+
 • Excellent used condition
 
 • Light natural wool fuzzing consistent with gentle wear
