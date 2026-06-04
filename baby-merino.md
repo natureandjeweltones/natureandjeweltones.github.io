@@ -16,6 +16,8 @@ Merino wool is naturally temperature regulating, breathable, moisture wicking, a
 
 #### Fern Green Sleep Gown 
 
+<img src="https://github.com/user-attachments/assets/f74fee4a-30c0-4d47-aa81-15336d44fdd2" width="770" alt="SimplyMerino_FernGreen_InfantGown_0-3m_IMG_2405" />
+
 Size: 0–3 Months  
 
 Condition:
@@ -33,7 +35,6 @@ Please Note:
 #### Dusky Rose Sleep Gown
 
 <img src="https://github.com/user-attachments/assets/98d433a1-89ad-495c-ad91-b54feba6e310" width="770" alt="SimplyMerino_DuskyRose_InfantGown_0-3m_IMG_2511" />
-
 
 Size: 0–3 Months  
 
@@ -57,7 +58,6 @@ Size: 3 months to 24 months
 
 Condition: Gently Used
 
-
 #### Sandstone Stripe Toddler Sleep Sack
 
 Size: 2-4 years
@@ -70,11 +70,11 @@ Condition: Gently Used
 
 #### Wild Cherry/Blue Spruce Bodysuit
 
+<img src="https://github.com/user-attachments/assets/f169fb34-8d23-40a8-9fbe-66603cecc9fe" width="770" alt="WeeWoollies_WildCherry_6to12m_IMG_8020" />
+
 Size: 6-12 months 
 
 Condition: Gently Used
-
-<img src="https://github.com/user-attachments/assets/f169fb34-8d23-40a8-9fbe-66603cecc9fe" width="770" alt="WeeWoollies_WildCherry_6to12m_IMG_8020" />
 
 #### Wild Cherry/Blue Spruce Bodysuit
 
@@ -94,14 +94,15 @@ Condition: Gently Used
 
 #### Brown/Cream Premium Selection Sweater and Pants Set
 
+<img src="https://github.com/user-attachments/assets/5f43d2f1-0070-4ff0-97a0-bf19b38597f3" width="770" alt="H M_PremiumBrownDotMerino_2-4m_IMG_7523" />
+
 Size: 4-6 months
 
 Condition: New With Tags (NWT) 
 
-<img src="https://github.com/user-attachments/assets/5f43d2f1-0070-4ff0-97a0-bf19b38597f3" width="770" alt="H M_PremiumBrownDotMerino_2-4m_IMG_7523" />
-
-
 #### Dark Grey/Cream Micro Pattern Premium Selection Sweater & Pants Set
+
+<img src="https://github.com/user-attachments/assets/d8440a9d-680b-48af-8b24-45ee0e0723f9" width="400" />
 
 Size: 9-12 months
 
@@ -117,7 +118,7 @@ Condition:
 
 • Fabric remains soft, evenly textured, and fully wearable
 
-<img src="https://github.com/user-attachments/assets/d8440a9d-680b-48af-8b24-45ee0e0723f9" width="400" />
+
 
 [↑ Return to Top](#top)
 
