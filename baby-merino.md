@@ -15,16 +15,17 @@ Condition:
 Gently used and carefully maintained. Knit still has excellent softness, stretch, and overall fibre condition. Material close ups and brand/fibre labels shown in photos.
 
 Please Note: 
-The tie ends were lightly stitched together for easier everyday use and can still be laid flat if preferred.
+• The tie ends were lightly stitched together for easier everyday use and can still be laid flat if preferred.
 
 #### Dusky Rose Sleep Gown
 Size: 0–3 Months  
 
 Condition:
-Well loved and carefully maintained. Knit still has excellent softness, stretch, and overall fibre condition. Material close ups and brand/fibre labels shown in photos.
+• Well loved and carefully maintained. • Knit still has excellent softness, stretch, and overall fibre condition. 
 
 Please note:
-Bottom tie is missing.  One label edge is partially detached. Both flaws are shown clearly in photos.
+• Bottom tie is missing.  
+• One label edge is partially detached. • Both flaws are shown clearly in photos.
 
  
 ### Merino Kids (UK)
@@ -64,10 +65,15 @@ Size: 4-6 months
 
 Condition: New With Tags (NWT) 
 
-#### Grey/Cream Premium Selection Sweater and Pants Set
-Size: 4-6 months
+#### Dark Grey/Cream Micro Pattern Premium Selection Sweater & Pants Set
+Size: 9-12 months
 
-Condition: Gently Used
+Condition: 
+• Excellent used condition
+• Light natural wool fuzzing consistent with gentle wear
+• Original owner name on care labels has been fully covered with marker and is shown in photos
+• No holes, stains, thinning, or repairs noted
+• Fabric remains soft, evenly textured, and fully wearable
 
 
 
