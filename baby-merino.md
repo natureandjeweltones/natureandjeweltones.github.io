@@ -6,7 +6,7 @@ Merino wool is naturally temperature regulating, breathable, moisture wicking, a
 
 ## Available Inventory
 
-### Simply Merino 
+### Simply Merino (Canada)
 
 #### Fern Green Sleep Gown 
 Size: 0–3 Months  
@@ -24,14 +24,20 @@ Please note:
 Bottom tie is missing.  One label edge is partially detached. Both flaws are shown clearly in photos.
 
  
-### Woolino 
+### Merino Kids (UK)
 
-#### Sleep Sacks 
-Size: 2 months to 2 years
-Colours: cream/beige and one green
+#### Sleep Sack
+Size: 3 months to 24 months
+Colours: Sandstone Stripe
 Condition: Gently Used
 
-### Wee Woolies 
+
+#### Sleep Sack
+Size: 2-4 years
+Colours: Sandstone Stripe
+Condition: Gently Used
+
+### Wee Woolies (Canada)
 
 #### Bodysuit
 Sizes: 6-12 months 
