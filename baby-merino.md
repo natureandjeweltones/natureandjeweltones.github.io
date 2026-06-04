@@ -12,7 +12,11 @@ Merino wool is naturally temperature regulating, breathable, moisture wicking, a
 Size: 0–3 Months  
 
 Condition:
-Gently used and carefully maintained. Knit still has excellent softness, stretch, and overall fibre condition. Material close ups and brand/fibre labels shown in photos.
+• Gently used and carefully maintained. 
+
+• Knit still has excellent softness, stretch, and overall fibre condition. 
+
+•Material close ups and brand/fibre labels shown in photos.
 
 Please Note: 
 • The tie ends were lightly stitched together for easier everyday use and can still be laid flat if preferred.
@@ -25,6 +29,7 @@ Condition:
 
 Please note:
 • Bottom tie is missing.  
+
 • One label edge is partially detached. • Both flaws are shown clearly in photos.
 
  
@@ -70,9 +75,13 @@ Size: 9-12 months
 
 Condition: 
 • Excellent used condition
+
 • Light natural wool fuzzing consistent with gentle wear
+
 • Original owner name on care labels has been fully covered with marker and is shown in photos
+
 • No holes, stains, thinning, or repairs noted
+
 • Fabric remains soft, evenly textured, and fully wearable
 
 
