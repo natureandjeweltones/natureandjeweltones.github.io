@@ -1,4 +1,4 @@
-<img width="3490" height="2379" alt="WeeWoolies_WildCherry_6to12m_IMG_8020" src="https://github.com/user-attachments/assets/f169fb34-8d23-40a8-9fbe-66603cecc9fe" />
+
 
 [← Return to Main Page](/)
 
@@ -71,7 +71,7 @@ Size: 6-12 months
 
 Condition: Gently Used
 
-<img width="3490" height="2379" alt="IMG_8020" src="https://github.com/user-attachments/assets/982af3af-35f3-4124-b5db-01ecf928a53e" />
+<img width="3490" height="2379" alt="WeeWoolies_WildCherry_6to12m_IMG_8020" src="https://github.com/user-attachments/assets/f169fb34-8d23-40a8-9fbe-66603cecc9fe" />g
 
 #### Wild Cherry/Blue Spruce Bodysuit
 
