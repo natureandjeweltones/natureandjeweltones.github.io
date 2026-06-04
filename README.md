@@ -44,6 +44,8 @@ Quality merino wool, cashmere, alpaca wool, organic cotton, linen, bamboo clothi
 -Wee Woolies
 -Woolino
 
+[View Baby & Children's Merino Wool Inventory](baby-merino.md)
+
 ## Women's and Children's Footwear
 
 Carefully selected new and pre-owned footwear.
