@@ -1,3 +1,4 @@
+
 [← Return to Main Page](/)
 
 <a id="top"></a>
@@ -65,9 +66,11 @@ Condition: Gently Used
 
 #### Wild Cherry/Blue Spruce Bodysuit
 
-Sizes: 6-12 months 
+Size: 6-12 months 
 
 Condition: Gently Used
+
+<img width="3490" height="2379" alt="IMG_8020" src="https://github.com/user-attachments/assets/982af3af-35f3-4124-b5db-01ecf928a53e" />
 
 #### Wild Cherry/Blue Spruce Bodysuit
 
