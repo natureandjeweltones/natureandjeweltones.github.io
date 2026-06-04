@@ -1,6 +1,6 @@
 # Baby & Children's Merino Wool
 
-Quality merino wool clothing and sleepwear for babies and children.
+Quality 100% merino wool clothing and sleepwear for babies and children.
 
 Merino wool is naturally temperature regulating, breathable, moisture wicking, and resistant to odour build up.
 
@@ -10,6 +10,7 @@ Merino wool is naturally temperature regulating, breathable, moisture wicking, a
 
 #### Fern Green Sleep Gown 
 Size: 0–3 Months  
+
 Condition:
 Gently used and carefully maintained. Knit still has excellent softness, stretch, and overall fibre condition. Material close ups and brand/fibre labels shown in photos.
 
@@ -18,6 +19,7 @@ The tie ends were lightly stitched together for easier everyday use and can stil
 
 #### Dusky Rose Sleep Gown
 Size: 0–3 Months  
+
 Condition:
 Well loved and carefully maintained. Knit still has excellent softness, stretch, and overall fibre condition. Material close ups and brand/fibre labels shown in photos.
 
@@ -29,25 +31,44 @@ Bottom tie is missing.  One label edge is partially detached. Both flaws are sho
 
 #### Sandstone Stripe Baby Sleep Sack
 Size: 3 months to 24 months
+
 Condition: Gently Used
 
 
 #### Sandstone Stripe Toddler Sleep Sack
 Size: 2-4 years
+
 Condition: Gently Used
 
 ### Wee Woolies (Canada)
 
 #### Wild Cherry/Blue Spruce Bodysuit
 Sizes: 6-12 months 
+
 Condition: Gently Used
 
 #### Wild Cherry/Blue Spruce Bodysuit
-Sizes: 12-24 months
+Size: 12-24 months
+
 Condition: Gently Used
 
 #### Wild Cherry/Blue Spruce Leggings 
-Sizes: months
+Size: months
+
 Condition: Gently Used
+
+### H & M (Sweeden)
+
+#### Brown/Cream Premium Selection Sweater and Pants Set
+Size: 4-6 months
+
+Condition: New With Tags (NWT) 
+
+#### Grey/Cream Premium Selection Sweater and Pants Set
+Size: 4-6 months
+
+Condition: Gently Used
+
+
 
 
