@@ -95,6 +95,7 @@ Size: 4-6 months
 
 Condition: New With Tags (NWT) 
 
+<img width="1972" height="3131" alt="H M_PremiumBrownDotMerino_2-4m_IMG_7523" src="https://github.com/user-attachments/assets/5f43d2f1-0070-4ff0-97a0-bf19b38597f3" />
 
 
 #### Dark Grey/Cream Micro Pattern Premium Selection Sweater & Pants Set
@@ -112,6 +113,9 @@ Condition:
 • No holes, stains, thinning, or repairs noted
 
 • Fabric remains soft, evenly textured, and fully wearable
+
+<img width="1928" height="3497" alt="H M_PremiumGreySet_9-12months_IMG_7476" src="https://github.com/user-attachments/assets/d8440a9d-680b-48af-8b24-45ee0e0723f9" />
+
 
 [↑ Return to Top](#top)
 
