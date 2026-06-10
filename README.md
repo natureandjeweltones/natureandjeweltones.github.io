@@ -33,10 +33,6 @@ Carefully selected bags, belts, jewlery and unique finishing pieces with a focus
 -Torrid
 -Cleo
 
-## Bags & Accessories
-
-Handbags, accessories, and unique finishing pieces.
-
 [View Sash Bag Collection](sash-bags.md)
 
 ## Baby and Children's Clothing and Accessories 
