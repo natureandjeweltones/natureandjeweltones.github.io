@@ -33,7 +33,7 @@ Carefully selected bags, belts, jewlery and unique finishing pieces with a focus
 -Torrid
 -Cleo
 
-[View Sash Bag Collection](Sash-Bag.md)
+[View Sash Bag Collection](./Sash-Bag.md)
 
 ## Baby and Children's Clothing and Accessories 
 
