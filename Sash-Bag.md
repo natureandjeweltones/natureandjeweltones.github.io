@@ -28,8 +28,6 @@ Condition:
 
 • New With Tags inside origional factory packaging 
 
-
-
 #### Sterling Silver Faux Leather RFID Crossbody Bag
 
 Sterling Silver Faux Leather
@@ -50,7 +48,7 @@ packaging
 
 #### The Phoenix Pewter Metallic Faux Leather RFID Crossbody Bag
 
-<img width="395" height="694" alt="SashBag_Phoenix_Mirror" src="https://github.com/user-attachments/assets/1b103381-f335-494d-b4b3-f535c7e12c2e" />
+<img src="https://github.com/user-attachments/assets/1b103381-f335-494d-b4b3-f535c7e12c2e" width="770" alt="SashBag_Pheonix_Mirror" />
 
 The Phoenix Pewter Metallic Faux Leather Sash Bag offers a sophisticated alternative to traditional silver or grey accessories. Its versatile pewter finish blends warm and cool undertones, allowing it to pair effortlessly with a wide range of colours, metals, and wardrobe styles. Designed for hands-free convenience, it features the organizational functionality Sash Bags are known for while maintaining a polished, contemporary look. The subtle metallic sheen adds visual interest without overwhelming an outfit, making it equally suited to everyday wear, travel, and special occasions. This colourway has been discontinued by the manufacturer, making it increasingly difficult to find through regular retail channels.
 
