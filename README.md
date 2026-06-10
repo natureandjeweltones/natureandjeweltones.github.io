@@ -43,6 +43,7 @@ Quality merino wool, cashmere, alpaca wool, organic cotton, linen, bamboo clothi
 -H & M Premium Selection
 -Wee Woolies
 -Woolino
+-Babu
 
 [View Baby & Children's Merino Wool Inventory](baby-merino.md)
 
