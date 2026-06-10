@@ -33,6 +33,12 @@ Carefully selected bags, belts, jewlery and unique finishing pieces with a focus
 -Torrid
 -Cleo
 
+## Bags & Accessories
+
+Handbags, accessories, and unique finishing pieces.
+
+[View Sash Bag Collection](sash-bags.md)
+
 ## Baby and Children's Clothing and Accessories 
 
 Quality merino wool, cashmere, alpaca wool, organic cotton, linen, bamboo clothing and accessories for babies and children from Premie to age 6 Sizes.
