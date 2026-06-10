@@ -58,7 +58,7 @@ Carefully selected new and pre-owned footwear.
 
 ### Shipping Policy 
 
-Orders are carefully packaged and shipped promptly. Shipping times may vary depending on destination and carrier service. Tracking information will be provided when available. Buyers are encouraged to contact us with any questions before purchasing.
+Orders are carefully packaged and shipped promptly. Shipping times may vary depending on destination and carrier service. Tracking information will be provided when available. Buyers are encouraged to contact us with any questions before purchasing.   Local pick up in Toronto, may be availible upon request. 
 
 ### Returns
 
