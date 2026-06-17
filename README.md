@@ -80,7 +80,3 @@ Items are stored in a smoke-free, pet-free environment. All items are photograph
 Product inquiries are welcome.
 
 Email Address: info@natureandjeweltones.ca
-
-Poshmark: 
-https://posh.mk/6y41HU8CE3b
-Sign up with my code NATUREANDJEWEL and get C$15.
