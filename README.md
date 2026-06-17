@@ -3,6 +3,7 @@
 Curated Clothing • Merino Wool • Shoes • Accessories
 
 Toronto, Ontario, Canada
+<a id="top"></a>
 
 Welcome to Nature And Jewel Tones.
 
@@ -80,3 +81,5 @@ Items are stored in a smoke-free, pet-free environment. All items are photograph
 Product inquiries are welcome.
 
 Email Address: info@natureandjeweltones.ca
+
+[↑ Return to Top](#top)
