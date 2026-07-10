@@ -30,8 +30,7 @@ Condition:
 
 #### Sterling Silver Faux Leather RFID Crossbody Bag
 
-<img src="https://github.com/user-attachments/assets/93968ad9-cafd-475b-acf4-ac9efd064bbd" width="770" alt="IMG_1901" />
-
+<img width="770" height="779" alt="IMG_1901" src="https://github.com/user-attachments/assets/93968ad9-cafd-475b-acf4-ac9efd064bbd" />
 
 Sterling Silver Faux Leather
 
