@@ -62,6 +62,8 @@ Condition:
 
 #### Power Berry RFID Crossbody Bag
 
+<img src="https://github.com/user-attachments/assets/a4f64bbe-28a6-434e-b64c-e4ab47f8dd0c" width="770" alt="IMG_2278" />
+
 The Power Berry Faux Leather Sash Bag combines the functionality of a hands-free organizer with a rich berry tone that adds depth and colour to any wardrobe. This distinctive jewel-toned shade works beautifully with both neutrals and vibrant palettes, making it a versatile accessory throughout the year. Designed with multiple compartments for everyday essentials, it offers practical organization without sacrificing style. This colourway has been discontinued by the manufacturer, making it a harder-to-find option for those seeking a unique alternative to traditional neutrals.
 
 Size: One Size   
