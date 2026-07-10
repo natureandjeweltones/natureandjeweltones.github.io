@@ -30,6 +30,9 @@ Condition:
 
 #### Sterling Silver Faux Leather RFID Crossbody Bag
 
+<img src="https://github.com/user-attachments/assets/93968ad9-cafd-475b-acf4-ac9efd064bbd" width="770" alt="IMG_1901" />
+
+
 Sterling Silver Faux Leather
 
 The Sterling Silver Faux Leather Sash Bag combines the versatility of a neutral handbag with the distinctive look of a metallic finish. The soft silver tone pairs effortlessly with a wide range of colours and styles, making it an easy choice for both everyday wear and special occasions. Designed for hands-free convenience, it features multiple compartments to help keep cards, cash, phones, keys, and other essentials organized and accessible. 
