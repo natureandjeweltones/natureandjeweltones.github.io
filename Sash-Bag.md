@@ -18,6 +18,8 @@ Sash Bags are cross body bags designed to combine the convenience of a crossbody
 
 ### 24K Gold Lambskin Leather RFID Crossbody Bag
 
+<img width="770" height="1370" alt="IMG_9376" src="https://github.com/user-attachments/assets/94a74614-8d8e-4772-b188-e0b06bc82dba" />
+
 Crafted from genuine lambskin leather, the 24K Gold edition combines soft, supple texture with a rich metallic gold finish. Designed to function as both a crossbody bag and an organizational accessory, it offers hands-free convenience while adding a distinctive statement to everyday outfits. The warm gold tone pairs surprisingly well with both casual and dressier wardrobes, making it a versatile piece for travel, special occasions, and daily use. Multiple compartments help keep essentials organized and easily accessible while maintaining a sleek, streamlined profile.
 
 Now sold out through the manufacturer, this 24K Gold Lambskin Leather Sash Bag is a sought-after colourway that can be difficult to find.
