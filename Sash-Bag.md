@@ -76,4 +76,10 @@ Condition:
 
 • New With Tags inside origional factory packaging 
 
+### Sapphire Lambskin Leather RFID Crossbody Bag
+
+<img width="770" height="1370" alt="IMG_2161" src="https://github.com/user-attachments/assets/b9c042f9-d157-44d0-a1ce-b849b4dddad0" />
+
+
+
 [↑ Return to Top](#top)
